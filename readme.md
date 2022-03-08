@@ -1,6 +1,6 @@
 ### About Me:
 - 🌱 I’m currently learning: Scripting in general
-- 👯 I’m looking to collaborate on: A Cool And Good FiveM Server To Develop On
+- 👯 I'm currently not looking to collap with anyone atm
 - 🤔 I’m looking for help with: Nothing Right Now
 - 💬 Ask me about: Anything
 - 📫 How to reach me: My Discord ( https://discord.gg/5KBKRa74wg ) or PB on Discord Senõr Xmas#6793
@@ -16,3 +16,6 @@
 
 ### My Scripts
 - ⚡ I currently do not make any scripts but feel free to check out my EUP on my discord!
+
+### Partners
+- 📫 Platinum Grafik!
