@@ -10,7 +10,6 @@
 
 ### My Community ( https://discord.gg/5KBKRa74wg )
 - 🌏 Last Updated Members: 213
-- 💬 Cool Chats For The Community: Memes, Chat For DK And English
 - 🎉 Cool Giveaways: In The Giveaways channel
 - ⚡ Only 2 Owners: Xmas, V1per
 - 📫 Online Admins And Staffs
