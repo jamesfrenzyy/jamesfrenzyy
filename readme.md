@@ -4,7 +4,7 @@
 - 🤔 I’m looking for help with: Nothing Right Now
 - 💬 Ask me about: Anything
 - 📫 How to reach me: My Discord ( https://discord.gg/5KBKRa74wg ) or PB on Discord Senõr Xmas#6793
-- 😄 Pronouns: Him/He
+- 😄 Pronouns: He/him
 - ⚡ Fun fact: I'm Bisexual
 - 🌏 Where im from: Denmark
 
