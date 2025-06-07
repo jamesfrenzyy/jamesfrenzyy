@@ -3,9 +3,6 @@
 - 👯 I'm currently not looking to collap with anyone atm
 - 🤔 I’m looking for help with: Nothing Right Now
 - 💬 Ask me about: Anything
-- 📫 How to reach me: My Discord ( https://discord.gg/5KBKRa74wg ) or PB on Discord Senõr Xmas#6793
-- 😄 Pronouns: He/him
-- ⚡ Fun fact: I'm Bisexual
 - 🌏 Where im from: Denmark
 
 ### My Community ( https://discord.gg/5KBKRa74wg )
