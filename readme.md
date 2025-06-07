@@ -1,5 +1,5 @@
 ### About Me:
-- 🌱 I’m currently learning: Scripting in general
+- 🌱 I’m currently learning: Nothing
 - 👯 I'm currently not looking to collap with anyone atm
 - 🤔 I’m looking for help with: Nothing Right Now
 - 💬 Ask me about: Anything
