@@ -2,7 +2,7 @@
 
 ```ts
 const James = {
-  name: undefined,
+  name: James,
   age: 18,
   experience: "2+ years",
   role: "Developer",
